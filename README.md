@@ -7,20 +7,19 @@
 
 _ _ _
 
-<p align="center">[pt info](https://rentry.co/varkalen)</p>
+<div align="center">
+
+[:: 𝙥𝙩](https://rentry.co/varkalen) 
+
+</div>
 
 <p align="center"> — </p>
 
-<p align="center"> [my opinions on ships](https://rentry.co/shippyships) </p>
+<div align="center">
 
-<p align="center"> — </p>
+[:: opinions on ships](https://rentry.co/shippyships)
 
-<p align="center"> [GitHub Documentation](https://docs.github.com/) </p>
+</div>
 
-<center>
-
-[Visit Google](https://www.google.com)
-
-</center>
 
 _ _ _

@@ -11,7 +11,7 @@ _ _ _
 
 <div align="center">
 
-[✦. 𝙥𝙩 𝙞𝙣𝙛𝙤](https://rentry.co/varkalen) 
+[✦. 𝙥𝙩 𝙞𝙣𝙛𝙤](https://rentry.co/afterthelife) 
 
 </div>
 

@@ -7,9 +7,10 @@
 
 _ _ _
 
-[pt info](https://rentry.co/varkalen)
-— 
-[opinions on ships](https://rentry.co/shippyships)
-——[color my tre—(-(https://colormytree.me/2025/KBQQV6CREA2AR11DG2GZBM — ](https://b4mbilu.straw.page/) 
+[: 𝑷𝑻 𝐼𝘯𝘧𝘰 .](https://rentry.co/varkalen) 
+—
+[: 𝓞𝘱𝘪𝘯𝘪𝘰𝘯𝘴 𝘰𝘯 𝘴𝘩𝘪𝘱𝘴 .](https://rentry.co/shippyships) 
+—
+
 
 _ _ _
